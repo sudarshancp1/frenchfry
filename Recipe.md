@@ -1,0 +1,1 @@
+cut potatoes, heat oil, fry potatoe, add salt , add pepper.
